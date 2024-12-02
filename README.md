@@ -1,5 +1,9 @@
 **Olá prazer me chamo Maximus Yago**
 
-Sou um estudante do estado do Paraná no Brasil
+Sou um estudante do estado do Paraná no Brasil.
 
-![](https://media1.tenor.com/m/e7YNhJzbPhYAAAAd/m3n-i-maanbaz.gif)
+Focando em Marketing Digital.
+
+@max.santos43
+
+![]([https://media1.tenor.com/m/e7YNhJzbPhYAAAAd/m3n-i-maanbaz.gif](https://media1.tenor.com/m/CJb43SJtNisAAAAd/sergio-ramos.gif))
